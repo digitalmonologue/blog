@@ -1,5 +1,3 @@
-Here you can say lots of fun things about your site.
+This blog is not that serious.
 
-Maybe say a some things about yourself.
-
-Or maybe what you plan to blog about.
+Please reach out via email if you have any concerns or suggestions
