@@ -2,8 +2,8 @@
 
 It is the season of layoff letters from the CEOs. Every week a few new ones come out so there is no shortage of examples. However, I haven't found information that is neatly packaged for those who are tasked by their bosses to ghostwrite one. 
 
-This is a quick guide to help those who don't have any idea to start. It will address you as the writer, but to be effective you must put yourself in the shoes of the CEO, so sometimes the royal you will be the CEO you. Sometimes it will be the corporation you since corporations are people too. 
-As you get a draft ready, make sure you have thought through the following five parts of advice to equip you to write the best layoff letter from your CEO possible.
+This is a quick guide to help those who don't have any idea where to start. It will address you as the writer, but to be effective you must put yourself in the shoes of the CEO, so sometimes the royal you will be the CEO you. Sometimes it will be the corporation you since corporations are people too. 
+As you get a draft ready, make sure you have thought through the following five pieces of advice to equip you to write the best layoff letter from your CEO possible.
 
 ### Understand your Audience:
 
