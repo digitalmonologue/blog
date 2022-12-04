@@ -52,7 +52,7 @@ Thank you for making it this far. See how powerful saying thanks is? There are b
 * Do: thank the people you are planning to layoffs. This will help them feel seen. Mention something along the lines that you couldn't have built this company without them
 * Do: thank the people who will be working tomorrow. Mention something along the lines that you understand that there will be a period of morning, but you trust that the company will be built better and with greater focus.
 *	Do: remember what was said at the beginning. Remember who you are writing for
-*	Do: check if you have got all your legal reviews done for this letter. Your legal team has failed you if they haven't been proactive about leaving a disclaimer. (Another source of ammunition to reduce headcount!) By this point, you have successfully constructed so many forward-looking statements that readers should have forgotten to look back and think about what responsibility should look like. With every solution comes more problems. To solve this next one you should include, in italics and in smaller font, a disclaimer that forward-looking statements don't mean anything. 
+*	Do: check if you have got all your legal reviews done for this letter. Your legal team has failed you if they haven't been proactive about leaving a disclaimer. (Another source of ammunition to reduce headcount!) By this point, you have successfully constructed so many forward-looking statements that readers should have forgotten to look back and think about what responsibility should look like. With every solution comes more problems. To solve this next one you should include a disclaimer, in italics and smaller font, that forward-looking statements don't mean anything. 
 
 
 ### Final Thoughts
