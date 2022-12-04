@@ -64,5 +64,6 @@ There is no right way to do layoffs. You've ignored logic before, so let's be ge
 Give yourself a few days to center yourself. And when you are ready to list. Listen to what great things investors have to say. Good luck during these unprecedented times.
 
 Sincerely, 
+
 dgtlmnlg (using just your first name makes the layoff feel like it's coming from your teammate, rather than a corporation)
 
